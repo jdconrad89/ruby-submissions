@@ -22,7 +22,7 @@ Eric Wahlgren-Sauro:
 
 Ethan Bennett: Why You Should Stop Not Giving a Shit About Jazz
 
-Jason Conrad:
+Jason Conrad: A brief history of Rollercoasters
 
 Jesse Shipley: How to get Google to fix your car.
 
